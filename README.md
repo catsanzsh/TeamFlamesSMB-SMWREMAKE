@@ -1,0 +1,2 @@
+# TeamFlamesSMB-SMWREMAKE
+1.0
